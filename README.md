@@ -13,7 +13,7 @@ Nous espérons sincèrement que tu nous rejoignes et que tu puisses passer un ag
 
 **―――――――――――――――――――――――――――――――――――――――――――――――――――――――――――**
 
-     **Site web:** https://roadtonincraft.fr
+     **Site web:** https://nincraft.fr
      **Serveur discord:** https://discord.gg/JNvyAVsjsB
 
 **―――――――――――――――――――――――――――――――――――――――――――――――――――――――――――**
